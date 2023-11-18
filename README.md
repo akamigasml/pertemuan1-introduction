@@ -1,5 +1,5 @@
 # Introduction
 
 By:
-+ Nama: Itachi Uchiha
-+ NIM: 2221100025
++ Nama: Sasuke Uchiha
++ NIM: 2221100010
